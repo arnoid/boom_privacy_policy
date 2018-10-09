@@ -1,0 +1,1 @@
+boom_privacy_policy
